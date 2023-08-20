@@ -2,7 +2,7 @@
 
 ## [怎样写日记？——郭沫若](https://libraryyirui.sut.edu.cn/vpn/1/https/NNYHGLUDN3WXTLUPMW4A/kcms2/article/abstract?v=3uoqIhG8C44YLTlOAiTRKibYlV5Vjs7iJTKGjg9uTdeTsOI_ra5_Xb8d4c8nN-wSHIhcQ6tjspvtKYA-NfeoeBf27JQ_KuOS&uniplatform=NZKPT)
 |文艺题词日记|
-|:-|
+|:-:|
 这单是懂得一些写作的技巧是不够的，最要紧的是先要懂得如何充实“日记”的`内容`与表现“日记”的`功用`。  
 日记应该利用来作为自我生活之解剖台。要把自己解剖得血淋漓,五脏六腑都暴露。但要留心，不要把胆石当成了宝珠,不要把蛔虫当成了未上天的龙子。  
 日记是写给自己看,不是写给别人看。  
